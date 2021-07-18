@@ -1,1 +1,0 @@
-https://spsnft.github.io/rsschool-cv/cv
